@@ -15,4 +15,4 @@ EMAIL NEWSLETTER - https://drive.google.com/file/d/1qPPgBPiYqTxIVybWFaD93mxvhssR
 BLOG - https://kavipriya2708.blogspot.com/2023/09/city-are-you-bored-of-same-old-routine.html
 FACEBOOK ACCOUNT - https://www.facebook.com/profile.php?id=61550651594910&mibextid=LQQJ4d
 SOCIAL MEDIA POSTER - https://drive.google.com/file/d/1hXD39uxSNFa9L6Jkaj3gUoVLvYtz4iol/view?usp=drivesdk
-EMAIL NEWSLETTER - https://www.canva.com/design/DAFytPRKaZ0/NO18os3o3jQpLCHoAqwZfg/editutm_content=DAFytPRKaZ0&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
+EMAIL NEWSLETTER - https://www.canva.com/design/DAFytPRKaZ0/NO18os3o3jQpLCHoAqwZfg/edit?utm_content=DAFytPRKaZ0&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
