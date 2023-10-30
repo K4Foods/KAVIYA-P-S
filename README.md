@@ -16,3 +16,15 @@ BLOG - https://kavipriya2708.blogspot.com/2023/09/city-are-you-bored-of-same-old
 FACEBOOK ACCOUNT - https://www.facebook.com/profile.php?id=61550651594910&mibextid=LQQJ4d
 SOCIAL MEDIA POSTER - https://drive.google.com/file/d/1hXD39uxSNFa9L6Jkaj3gUoVLvYtz4iol/view?usp=drivesdk
 EMAIL NEWSLETTER - https://www.canva.com/design/DAFytPRKaZ0/NO18os3o3jQpLCHoAqwZfg/edit?utm_content=DAFytPRKaZ0&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
+
+# KAVIYA P S - A04D8E6B09D0A5EB2804AE19805787C8
+BLOG - https://psfertilizer.blogspot.com/
+FACEBOOK ACCOUNT - https://www.facebook.com/profile.php?id=61550527505352&mibextid=ZbWKwL
+SOCIAL MEDIA POSTER - https://www.canva.com/design/DAFsKHq27fM/deBq8o-ABeH6RhNAOyn3xw/edit?utm_content=DAFsKHq27fM&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
+EMAIL NEWSLETTER - https://www.canva.com/design/DAFteLSzOeE/W9ezJqYhg9coiYnsos8AbA/edit?utm_content=DAFteLSzOeE&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
+
+# KEERTHANA K - 0F9490795EFD39CA0F045998FC527753
+BLOG - https://royalfitsports.blogspot.com/?m=1
+FACEBOOK ACCOUNT - https://www.facebook.com/profile.php?id=61552712440120&mibextid=ZbWKwL
+SOCIAL MEDIA POSTER -https://www.canva.com/design/DAFiTVCrliA/pSDXTDsU0TcZDjRRni50wQ/edit?utm_content=DAFiTVCrliA&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
+EMAIL NEWSLETTER - https://www.canva.com/design/DAFytDIKd6Y/F6KKSMef6_r-WpzEzKxFoA/edit?utm_content=DAFytDIKd6Y&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
